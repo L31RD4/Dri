@@ -10,7 +10,6 @@
 - ⚡ Curiosidade: depois de produzir o jogo para a playstore, pretendo fazer um para a plataforma da roblox, creio que eu irei precisar de ajuda para esse jogo também
 - 🤔 Estou procurando ajuda para produzir um jogo não tão complexo para a playstore
 - 📫 entrar em contato comigo pelo [email](cruz.adriel@escola.pr.gov.br) 
-
 ou pelo discord: Dri_senpai#0981
 
 
