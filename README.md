@@ -11,7 +11,6 @@
 - 🤔 Estou procurando ajuda para produzir um jogo não tão complexo para a playstore
 - 📫 entrar em contato comigo pelo [email](cruz.adriel@escola.pr.gov.br) 
 
-
 ou pelo discord: Dri_senpai#0981
 
 
